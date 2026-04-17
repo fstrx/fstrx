@@ -1,1 +1,1 @@
-⚡ Fun fact **linux**
+Fun fact linux is goated
